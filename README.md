@@ -1,1 +1,1 @@
-# Profit-Trailer-Settings-Binance-ETH-SMASPREAD
+# Profit-Trailer-Settings-Binance-ETH-SMAGAIN
